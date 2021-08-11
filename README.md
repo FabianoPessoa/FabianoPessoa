@@ -7,8 +7,7 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently working on Petroleum Industry
 - 🌱 I’m currently learning many Languagem
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 😄 Pronouns: ...
+- 👯 I’m looking to collaborate on The Wold
+- 🤔 I’m looking for help with everybody
 - ⚡ Fun fact: I like MR Robot. :)
 
